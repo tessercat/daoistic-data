@@ -15,7 +15,7 @@ what made them so popular.
 故強為之容
 
 They were careful, like a winter crossing,
-and they were reserved, like a respectful neighbour.
+and they were reserved, like respectful neighbours.
 豫兮若冬涉川
 猶兮若畏四鄰
 

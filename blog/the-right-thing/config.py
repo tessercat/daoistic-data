@@ -1,5 +1,5 @@
 {
-    'lede': 'Laozi on creation, action and leadership. 道德經 10.',
+    'lede': 'Laozi\'s soul train. 道德經 10.',
     'archive': 'dao',
     'published': False
 }

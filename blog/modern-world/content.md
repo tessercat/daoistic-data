@@ -42,7 +42,7 @@ aren't trying to get rich.
 保此道者不欲盈
 
 That's
-why they let people figure it out for themselves
+why they let people help themselves
 instead of selling them a quick fix.
 夫唯不盈
 故能蔽

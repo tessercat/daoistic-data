@@ -1,19 +1,19 @@
-# Ticket to ride
+# Ticket to Ride
 
-Ideas can be expressed, but this,
-it's not a normal idea.
-Words can be defined, but this,
-it's not a normal word.
+Ideas can be expressed,
+but it's not a normal idea.
+Words can be defined,
+but it's not a normal word.
 道可道非常道
 名可名非常名
 
-Nameless, it's the author of heaven and earth,
-defining it explains everything.
+Nameless, it's the author of heaven and earth.
+Defining it explains everything.
 無名天地之始
 有名萬物之母
 
-So stay neutral to observe its subtleties,
-stay committed to discover how to describe it.
+So stay neutral to observe its subtleties.
+Stay committed to discover how to describe it.
 故常無欲以觀其妙
 常有欲以觀其徼
 

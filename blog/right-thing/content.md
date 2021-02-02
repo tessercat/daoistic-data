@@ -7,7 +7,7 @@ Don't let yourself get left behind.
 
 專氣致柔
 能嬰兒乎
-Gather your energy and soften.
+Save your energy and relax.
 Let yourself be a newborn child.
 
 滌除玄覽
@@ -27,8 +27,8 @@ Let yourself take it all in.
 
 明白四達
 能無知乎
-Bright light in every direction.
-Don't even let yourself notice.
+Clear and bright in every direction.
+Don't even let yourself think.
 
 生之畜之
 生而不有

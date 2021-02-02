@@ -31,7 +31,8 @@ tradition of moral philosophy
 that's at least somewhat
 lost it time,
 and mostly foreign to me
-in language and culture.
+in language, culture
+and character.
 
 I affirm that
 the _Dao De Jing_ riffs on

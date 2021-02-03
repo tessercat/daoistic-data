@@ -11,15 +11,12 @@ of the deadly,
 inescapable,
 invincible,
 impersonal forces
-that shape us
-and our world.
+that shape us.
 
 The best revenge
 is to have good neighbours 民
-who share between them
-the beauty 美 and joy 樂
-of peace 安
-and contentment 甘.
+who share the beauty 美 and joy 樂
+of peace 安 and contentment 甘.
 
 無所乘之 and 無所陳之 are,
 "There was nothing [towards/against] which

@@ -4,7 +4,7 @@ It's a tiny town,
 just a few neighbours.
 小國寡民
 
-They gave us machines that produce ten times more,
+They gave us machines to produce ten times more,
 but we wouldn't use them.
 So they threatened to kill us,
 but we didn't run away.
@@ -33,7 +33,7 @@ our ways are friendly.
 
 Neighbouring towns are within sight of each other.
 Our chickens and dogs can hear one another.
-Our neighbours die of old age and aren't cruel or kind to each other.
+Neighbours die of old age and we aren't cruel or kind to each other.
 鄰國相望
 雞犬之聲相聞
 民至老死不相往來

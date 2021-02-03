@@ -34,7 +34,7 @@ Don't even let yourself think.
 生而不有
 為而不恃
 長而不宰
-Create something and shepherd it.
+When you create something, shepherd it.
 Create, but don't own it.
 Act, but don't force it.
 Lead, but don't control it.

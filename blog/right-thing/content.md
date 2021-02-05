@@ -34,10 +34,10 @@ Don't even let yourself think.
 生而不有
 為而不恃
 長而不宰
-When you create something, shepherd it.
-Create, but don't own it.
-Act, but don't force it.
-Lead, but don't control it.
+Creating us, guiding us
+to create but not own,
+parent but not mother,
+nurture but not judge.
 
 是謂玄德
 This one's called Xuande,

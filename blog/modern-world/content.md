@@ -43,7 +43,7 @@ aren't trying to get rich.
 
 That's
 why they let people help themselves
-instead of selling them a quick fix.
+instead of selling us a quick fix.
 夫唯不盈
 故能蔽
 不新成

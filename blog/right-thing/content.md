@@ -27,17 +27,17 @@ Let yourself take it all in.
 
 明白四達
 能無知乎
-Clear and bright in every direction.
-Don't even let yourself think.
-
 生之畜之
 生而不有
 為而不恃
 長而不宰
-Creating us, guiding us
-to create but not own,
-parent but not mother,
-nurture but not judge.
+Clear and bright in every direction.
+Don't even let yourself think
+about how we're
+created and compelled
+to give birth but not own,
+to motivate but not mother,
+to parent but not punish.
 
 是謂玄德
 This one's called Xuande,

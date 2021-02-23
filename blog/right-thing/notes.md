@@ -22,6 +22,6 @@ is just unbelievably flexible.
 If I were to apply
 its lesson in Dao De natural law
 to Laozi's water buffalo,
-he raised her, but doesn't own her,
-he guides her, but she doesn't need him,
-he fattens her, but not for slaughter.
+he raised her but doesn't own her,
+he guides her but she doesn't need him,
+he fattens her but not for slaughter.

@@ -10,7 +10,10 @@ literal in Kroll first edition.
 - 善言無瑕讁
   Speaking well, no fault to punish.
 - 善數不用籌策
-  Good counting / fate / numerology, not using tally / lots / yarrow stalks to predict.
+  Good counting, not using tally rod to predict.
+  Good fate, not using lots to predict.
+  Good numerology, not using yarrow stalks to predict.
+  Crafting well, not using counting rod or bamboo strips.
   Rebuking well, not using counting rod to whip.
 - 善閉無關楗而不可開
   Blocking / stopping well, no juncture to block up, but can't be opened / started.
@@ -18,15 +21,13 @@ literal in Kroll first edition.
   Thatching well, no ropes to bind, but can't be loosened.
   Making friends well / a good outcome, no standard to promise, but can't be taken apart.
 
-The last two expressions are tricky.
 I think the variable character in the 而不可 expression
 refers to the skill of the 善 expression.
 
 I think it's interesting
 that most characters in the 善 expressions
 have literal or figurative definitions
-that have something to do with 善行
-as *good conduct*.
+that align with 善行 as *good conduct*.
 
 善救 is an expression that appears in this poem
 and in _Guliang Zhuan_,

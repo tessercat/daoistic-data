@@ -2,9 +2,9 @@
 
 The art of walking is in leaving no trace.
 The art of talking is in finding no fault.
-The art of design isn't in a textbook.
-The art of unassailable defense is in barring no gate.
-The art of unbreakable friendship is in swearing no oath.
+The art of inspiration isn't in a textbook.
+The art of unshakable defense is in barring no gate.
+The art of unbreakable friendship is in imposing no bond.
 善行無轍迹
 善言無瑕讁
 善數不用籌策

@@ -1,5 +1,5 @@
 {
-    'lede': 'Laozi on good human beings. 道德經 27.',
+    'lede': 'Laozi on helping people and fixing things. 道德經 27.',
     'archive': 'dao',
     'published': True
 }

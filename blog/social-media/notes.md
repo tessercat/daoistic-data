@@ -13,7 +13,7 @@ People get sick and make mistakes
 when they're too sure of themselves.
 When people aren't even aware
 that they're messing with something
-beyond their own comprehension,
+beyond their comprehension,
 they get a sharp reminder
 when they're troubled by illness
-or when they make a mistake.
+or by making a mistake.

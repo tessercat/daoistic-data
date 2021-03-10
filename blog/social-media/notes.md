@@ -1,6 +1,3 @@
-I think it's a warning.
-
-According to Kroll,
 知 is *know*, a verb,
 but can be *knowledge*, a noun.
 
@@ -8,23 +5,23 @@ but can be *knowledge*, a noun.
 realizing that you,
 or someone else,
 might not know
-what they're talking about.
-Ignorance is natural,
+what you're talking about.
+Either is fine.
+Ignorance is our default state,
 after all.
 
 不知知 is
 not acknowledging this realization (of ignorance).
-It's the moral and intellectual certainty
-of trolls and believers.
+It's the arrogance of trolls and believers.
 
 病 is *illness* or *fault*
 as a noun,
 or *troubled by*
-as a verb.
+as a verb,
+and 病病 is *troubled by illness or by making mistakes*.
 
-People get in trouble
-when they're too sure of themselves.
-Ignorance and arrogance
-get a sharp reminder
-when they suffer the consequence
-of messing with the unknown.
+So it's a warning.
+Ignorance is fine,
+but ignorance and arrogance
+get us in trouble
+when we mess with the unknown.

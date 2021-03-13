@@ -12,17 +12,17 @@ A good assignment doesn't have a deadline, but can't be skipped.
 善結無繩約而不可解
 
 That's why the best teachers are
-always willing to help people so that no one gets left behind,
-and they're always happy to fix things so that nothing stays broken.
+always willing to help students so that no one gets left behind,
+and they're always happy to review something so that nothing gets forgotten.
 They call it core curriculum.
 是以聖人
 常善救人故無棄人
 常善救物故無棄物
 是謂襲明
 
-It follows
-that good people are experts at helping beginners,
-and that people in need are the good person's concern.
+All of this is because
+good people are experts at helping people in need,
+and people in need are the good person's concern.
 But we ignore the experts
 and avoid the subject,
 and even the research says it's a big mistake.

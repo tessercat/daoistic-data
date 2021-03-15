@@ -18,8 +18,8 @@ I'm certainly no expert,
 definitely not Daoist,
 but I like spending time
 wondering what they were on about,
-and sometimes
-trying to express what I think I find there
+and sometimes I try to express
+what I think I find there
 in my own words.
 
 You can contact me by emailing

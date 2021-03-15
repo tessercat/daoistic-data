@@ -31,7 +31,7 @@ absolute truth might be fickle.
 質真若渝
 
 It's a great big square without any corners.
-It's a big heavy pot that holds nothing inside.
+It's a big heavy pot that holds nothing in.
 It's a big booming voice that hardly anyone hears.
 It's a grand unified theory without any proof.
 大方無隅

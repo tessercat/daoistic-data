@@ -1,13 +1,14 @@
 # Comic Genius
 
 Good students hear about Dao and work hard, but they follow it.
-Average students hear about Dao and some find it, some lose it.
-Bad students hear about Dao and make fun of it.
-If it wasn't so ridiculous, it wouldn't be worth thinking of as Dao,
-so we joke about it like this.
+Average students hear about Dao and sometimes stick with it, sometimes get lost.
+Bad students hear about Dao and laugh at it.
 上士聞道勤而行之
 中士聞道若存若亡
 下士聞道大笑之
+
+If it wasn't hilarious, it wouldn't be worth thinking of as Dao,
+so here are some of the jokes it plays.
 不笑不足以為道
 故建言有之
 
@@ -15,10 +16,10 @@ Observing Dao obscures it,
 proving Dao refutes it,
 sorting Dao scatters it.
 Praising De degrades it
-and preaching it defiles it.
+and preaching defiles it.
 Developing De depletes it,
 supporting De demeans it
-and believing it denies it.
+and believing denies it.
 明道若昧
 進道若退
 夷道若纇
@@ -28,12 +29,12 @@ and believing it denies it.
 建德若偷
 質真若渝
 
-A great artist without any training,
-an amazing talent that develops too late,
-an important voice singing too softly to hear,
-a grand unified theory without any proof,
-Dao is reserved and has nothing to prove,
-and Dao is as convincing as it is considerate.
+Rank with no insignia,
+a tool too subtle to forge,
+a voice too faint to hear,
+a theory with no proof,
+Dao is a riddle with no answer,
+and Dao is only as convincing as it is a good sport.
 大方無隅
 大器晚成
 大音希聲

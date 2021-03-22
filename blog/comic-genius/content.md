@@ -29,10 +29,10 @@ and believing denies it.
 建德若偷
 質真若渝
 
-Rank with no insignia,
-a tool too subtle to forge,
-a voice too faint to hear,
-a theory with no proof,
+A school with no lessons,
+a method too subtle to learn,
+a lecture too faint to hear,
+a metaphor with no meaning,
 Dao is a riddle with no answer,
 and Dao is only as convincing as it is a good sport.
 大方無隅

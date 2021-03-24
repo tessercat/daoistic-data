@@ -35,7 +35,7 @@ in language, culture
 and character.
 
 I affirm that
-the _Dao De Jing_ riffs on
+the _Daodejing_ riffs on
 universal themes,
 and that it's possible
 for me at least to appreciate

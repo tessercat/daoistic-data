@@ -4,7 +4,7 @@ that also appears in
 [At the Mercy of Ants - Part 1](https://daoistic.ca/blog/ants-part-1 "Read At the Mercy of Ants - Part 1") in _Wenzi_
 and
 [chapter 5](https://ctext.org/dao-de-jing#n11596 "ctext link")
-of the _Dao De Jing_,
+of the _Daodejing_,
 and it turned out to complement
 the _Wenzi_ passage remarkably well,
 almost a footnote

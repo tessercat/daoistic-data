@@ -1,4 +1,4 @@
-The more I look at the _Dao De Jing_,
+The more I look at the _Daodejing_,
 and Daoist poetry in general,
 the more optimistic and upbeat it seems,
 the more rational and practical.

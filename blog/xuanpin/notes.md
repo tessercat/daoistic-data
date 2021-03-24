@@ -19,7 +19,7 @@ by Yangzi's fire.
 I started looking at this passage
 because it shares the term 貴生 with
 [chapter 75](https://ctext.org/dao-de-jing#n11666 "ctext link")
-of the _Dao De Jing_.
+of the _Daodejing_.
 I'm guessing that these characters,
 along with 愛, 身 and 厚,
 are part of the vocabulary of
@@ -65,7 +65,7 @@ liberated from destruction?
 
 Xuanpin is 玄牝 of
 [chapter 6](https://ctext.org/dao-de-jing#n11597 "ctext link")
-of the _Dao De Jing_.
+of the _Daodejing_.
 I was thinking of
 the last characters of the poem,
 其閒,

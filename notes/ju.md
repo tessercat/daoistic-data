@@ -1,4 +1,4 @@
-# Variation of 處 and 居 in ctext versions of the Dao De Jing
+# Variation of 處 and 居 in ctext versions of the Daodejing
 
 ## Introduction
 

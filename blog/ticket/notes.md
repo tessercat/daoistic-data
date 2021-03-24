@@ -1,4 +1,4 @@
-The _Dao De Jing_ uses 謂
+The _Daodejing_ uses 謂
 to name certain important concepts,
 as it does here for 玄.
 Other named 玄 binomials are

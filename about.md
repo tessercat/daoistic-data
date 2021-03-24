@@ -1,5 +1,5 @@
 I'm a random Canadian
-who read the _Dao De Jing_
+who read the _Daodejing_
 for a religious studies class
 and had no idea
 what to make of it.

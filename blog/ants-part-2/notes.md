@@ -2,7 +2,7 @@ I started looking at this passage
 because it contains part of an obscure term (數窮)
 that also appears in
 [chapter 5](https://ctext.org/dao-de-jing#n11596 "ctext link")
-of the _Dao De Jing_.
+of the _Daodejing_.
 I also looked closely
 at a passage in
 [Lu Shi Chun Qiu](https://ctext.org/lv-shi-chun-qiu/zhi-du#n23747 "ctext link")

@@ -1,14 +1,15 @@
-To my mind,
-the double meaning of 遠 as
+I looked closely at this passage
+to better understand 天下母.
+The author describes 天下母
+but doesn't know its name (名),
+and says (other) people give it a polite name (字) of 道
+and a personal name (名) of 大.
+Interpretation of the central triplet of 逝, 遠 and 反
+flows from there,
+and the double meaning of 遠 as
 separation and influence
 gives the poem
 a double meaning.
-
-The author doesn't know 天下母's name (名)
-but says (other) people give it a polite name (字) of 道
-and a personal name (名) of 大,
-and interpretation of the central triplet of 逝, 遠 and 反
-flows from there.
 
 First, it's a criticism of the "greatness" of kings.
 Kings aren't great.
@@ -26,6 +27,7 @@ also move in endless cycles.
 I'm not sure who's making the argument,
 but I take it as
 a not-so-subtle argument
+from first principles
 to put kings in their place
 not as permanent absolute authority,
 but rather as a temporary measure,
@@ -36,5 +38,5 @@ having no twin or pair,
 so I like it as
 the self-perpetuating,
 self-referencing,
-recursive,
+recursive
 Ouroboros.

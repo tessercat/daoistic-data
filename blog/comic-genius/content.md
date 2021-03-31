@@ -8,7 +8,7 @@ Bad students hear about Dao and laugh at it.
 下士聞道大笑之
 
 If it wasn't hilarious, it wouldn't be worth thinking of as Dao,
-so here are some of the jokes it plays.
+so these are some of the jokes it plays.
 不笑不足以為道
 故建言有之
 

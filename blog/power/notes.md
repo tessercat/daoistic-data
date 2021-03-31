@@ -1,28 +1,32 @@
-I'm not sure who's making it,
-but I take this poem as
-a not-so-subtle argument
+Other interpretations of this poem
+take 大 at face value,
+but I'm not so sure.
+I prefer to read the poem
+as a not-so-subtle Huang-Lao argument
 from cosmic first principles
-that puts 王 in their place
-not as permanent absolute authority,
+that puts kings in their place
+not as permanent absolute authority
+over a glorious motherland,
 but rather as a temporary measure,
 and perhaps only as first among equals.
 
-逝, 遠 and 反
-have enough variation in meaning
-for at least two interpretations
-that support my solution,
-one negative, one positive.
+Since 周行 describes the endless cycles of 天下母,
+the 曰 expressions describe phases of a cycle.
+When something has grown to greatness (大),
+kings included,
+it's bound to fall back (逝),
+become more distant (遠)
+and finally come back around and do it again (反).
 
-When kings are great,
-people form factions 逝,
-that estrange us 遠 from one another 
-and lead to civil strife 反.
-
-When kings aren't great,
-they leave 逝 private life,
-lead us in common cause 遠,
-and return 反 to private life
-when we finish.
+Since the poem notes that people (人)
+are as bound to the cyclical nature of 自然
+as 地, 天 and 道,
+and since the poem is about
+kings and their role as unifier (王居其一焉),
+cycle phases in the 曰 expressions describe
+a great but declining (逝) king's
+estrangement (遠) from the people
+and a warning of civil strife (反).
 
 The Riverside Elder comments on 獨立 as 無匹雙,
 having no twin or pair,
@@ -31,3 +35,6 @@ the self-perpetuating,
 self-referencing,
 recursive
 Ouroboros.
+I also like that interpretation of
+the cycle phase characters of the 曰 expressions
+requires an act of recursion.

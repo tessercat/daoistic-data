@@ -31,8 +31,8 @@ Let yourself take it all in.
 生而不有
 為而不恃
 長而不宰
-Clear and bright in every direction.
-Don't even let yourself think
+Clear and bright in every direction,
+don't even let yourself think
 about how we're
 created and compelled
 to give birth but not own,

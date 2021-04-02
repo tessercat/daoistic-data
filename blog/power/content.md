@@ -15,24 +15,24 @@ but I don't know what to call it.
 可以為天下母
 吾不知其名
 
-I write 道
-and believers say it's great,
-but greatness means decline,
-decline means division,
-and division means strife.
+In a word, it's 道,
+and if you must, call it great
+because greatness recedes,
+recedes and retires,
+retires and returns.
 字之曰道
 強為之名曰大
 大曰逝
 逝曰遠
 遠曰反
 
-When 道 is great,
+Since 道 is great,
 the heavens are majestic,
 the earth is sacred,
-and leaders are supreme.
+and sovereigns are powerful too.
 All four glorify the motherland,
-but leaders were meant to unite us,
-and we are to the earth,
+but sovereignty has a place in just one,
+and people are to the earth,
 as earth is to the heavens,
 as the heavens are to 道,
 as 道 is to what is.

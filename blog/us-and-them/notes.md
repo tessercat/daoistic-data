@@ -1,4 +1,4 @@
-In the _Yi Jing_,
+In the _Yijing_,
 往來 is the *back and forth*
 of wishy-washy indecision,
 of the destructive motion of a violent earthquake,

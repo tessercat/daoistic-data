@@ -17,7 +17,7 @@ in this poem
 between different versions,
 and some words have double meanings,
 definitions specific to Daoism,
-and entries in the _Yi Jing_,
+and entries in the _Yijing_,
 so it's very, very obscure,
 much like the
 inaudible,

@@ -7,8 +7,23 @@ over a glorious motherland,
 but as a temporary measure,
 and perhaps only as first among equals.
 
-Since 周行 describes the endless cycles of 天下母,
-the 曰 expressions describe phases of a cycle.
+I think the poem is saying
+that cycles of kingship
+should have a human scale
+of days and years,
+and that kings should not
+lay claim to cycles of greatness
+beyond the human realm.
+
+The Riverside Elder comments on 獨立 as 無匹雙,
+having no twin or pair,
+so I take 天下母 to be
+self-perpetuating,
+self-referencing,
+endless recursion.
+
+And since 周行 describes the endless cycles of 天下母,
+I think the 曰 expressions describe phases of a cycle.
 When something has grown to greatness (大),
 kings included,
 it's bound to fall back (逝),
@@ -19,20 +34,13 @@ Since the poem notes that people (人)
 are as bound to the cyclical nature of 自然
 as 地, 天 and 道,
 and since the poem is about kings
-and their presence in
+and their authority over
 only one of the four dimensions of greatness (王居其一焉),
 phase words in the 曰 expressions describe
 a great king's waning power (逝),
 retirement from public life (遠)
 and eventual replacement (反).
 
-The Riverside Elder comments on 獨立 as 無匹雙,
-having no twin or pair,
-so 天下母 is
-self-perpetuating,
-self-referencing,
-endless recursion.
-Phase words could apply to any number of social roles,
-but interpretation requires
-an act of recursion
+I like that interpretation of the phase words
+requires an act of recursion
 once the subject is defined (as 王).

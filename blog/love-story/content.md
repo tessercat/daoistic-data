@@ -1,28 +1,29 @@
 # All the World's a Stage
 
 大道汎兮
-Dao is so versatile.
+Dao is so versatile!
 其可左右
-It can act and direct.
+She can act and direct!
 
 萬物恃之而生而不辭
-We all audition for it,
-and it casts us but it doesn't share the script.
+Everything exists because of her,
+and she conjures us,
+but she doesn't tell us why.
 功成不名有
-When the credits roll, its name isn't there.
+When the story ends,
+we don't even know her name.
 衣養萬物而不為主
-It costumes and coaches us,
-and it doesn't play the hero.
+She provides for us
+and we don't even notice her.
 常無欲可名於小
 Objectively,
-you could say it's a minor character.
+you could say that we take her for granted.
 萬物歸焉而不為主
-We all answer to it
-and we don't call the shots.
+Everything happens because of her
+and we don't even notice her.
 可名為大
-You could say it's the star of the show.
-
+You could say she's the star of the show.
 以其終不自為大故能成其大
-Ironically,
-not playing the lead
-is what makes us the star.
+Ultimately,
+not drawing attention to herself
+is what lets her tell such a great story.

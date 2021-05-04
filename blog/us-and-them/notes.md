@@ -13,8 +13,35 @@ invincible,
 impersonal forces
 that shape us.
 
-The best revenge
-is to have good neighbours 民
+I've used the past tense here
+because so many poems in the _Daodejing_
+point out that
+道 is great,
+but like everything great,
+runs in cycles,
+and right now,
+human 道 is tiny,
+faint
+and far away.
+
+I think this poem
+tells a story
+of long ago and far away,
+when human 道 was ascendant,
+when people weren't colonizing and exploiting each other,
+when the rich and powerful weren't violent, dangerous thugs,
+and when normal people
+didn't do terrible things to each other to get ahead,
+or just to survive,
+and acts of kindness weren't heroic,
+just a matter of course.
+
+I also think that,
+while this poem is a lament,
+it's also an affirmation
+of the inevitability and immanence
+of a human 道
+of good neighbours 民
 who share the beauty 美 and joy 樂
 of peace 安 and contentment 甘.
 

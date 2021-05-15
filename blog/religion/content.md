@@ -1,4 +1,4 @@
-# Ultimate Power
+# Religion
 
 有物混成
 先天地生
@@ -13,7 +13,7 @@ moving in endless cycles,
 可以為天下母
 吾不知其名
 we might serve the all-mother,
-but we don't even know her name.
+but we don't spread the word.
 
 字之曰道
 強為之名曰大
@@ -30,19 +30,19 @@ vanishes and returns.
 天大
 地大
 王亦大
-So 道 is wonderful,
+So 道 is glorious,
 the heavens are majestic,
 the earth is sacred,
-and kings are great too.
+and religion is important too.
 域中有四大
 而王居其一焉
-All four are important to the motherland,
-but kings have a place in just one,
+All four are important to us here on earth,
+but religion has a place in just one.
 人法地
 地法天
 天法道
 道法自然
-and human beings are to the earth
+People are to the earth
 as the earth is to the heavens
 as the heavens are to 道
 as 道 is to what is.

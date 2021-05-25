@@ -1,4 +1,4 @@
-# Religion
+# Natural law
 
 有物混成
 先天地生
@@ -17,32 +17,32 @@ I think of her as the all-mother.
 I'm no evangelist.
 字之曰道
 強為之名曰大
-Writing about her gave us 道,
-claiming to speak for her gave us power.
+When I write about her am I speaking for her,
+and does invoking her make it true?
 大曰逝
 逝曰遠
 遠曰反
-Power made us deadly,
-deadliness made us indifferent,
-indifference made us villains.
+The truth sets us free,
+sets us free and abandons us, 
+abandons us and makes us hypocrites.
 
 故道大
 天大
 地大
 王亦大
-So 道 is powerful,
-the heavens are awe-inspiring,
-the earth is sacred,
-and leaders can be saints.
+So when I say she's great,
+does that make God great,
+the earth sacred,
+and can priests be saints?
 域中有四大
 而王居其一焉
-All four are crucial to us here on earth,
-but leaders claim authority in just one.
+All four are important to us here on earth,
+but religion has a place in just one.
 人法地
 地法天
 天法道
 道法自然
 People are to the earth
-as the earth is to the heavens
-as the heavens are to 道
-as 道 is to what is.
+as the earth is to the universe
+as the universe is to the word
+as the word is to what is.
